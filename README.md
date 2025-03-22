@@ -3,7 +3,7 @@
 - (Construction Industry Training Board). www.justallprotrades.com
 - 👀 I’m interested in ...Music recording & production, www.jooz-studios.com Architecture, Songwriting, Lyrics, Poetry, Language, I Teach Guitar , Piano.
 - 🌱 I’m currently learning ...Music Production, Steinberg Cubase 14
-- 💞️ I’m looking to collaborate on ...Building Projects Music Prodution Projects, Soongwiting, Lyrical Composition
+- 💞️ I’m looking to collaborate on ...Building Projects Music Production Projects, Soongwiting, Lyrical Composition
 - 📫 How to reach me ...T: 01223 604313 M: 07947 231925 M: 07359 132769 E: stephenrkhall@msn.com E: stevehall@justallprotrades.com W: www.justallprotrades.com W: 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... www.jooz-studios.com Does anyone fancy a pint ?
